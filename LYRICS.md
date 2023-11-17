@@ -45,4 +45,14 @@ Peut entrevoir,c'était comme un mirage\
 Plus d'interdit, juste avoir les dents assez longues\
 Pour croquer la vie, profiter de tout ce qui tombe
 La rue a su me prendre car elle me faisait confiance\
-Chose qui avec mon pere etait comme de la nuisance
+Chose qui avec mon pere etait comme de la nuisance\
+Aucun d'entre nous n'a voulu recoller les morceaux\
+Toute tentative nous montrait qu'on avait vraiment trop d'ego\
+Mon pere n'etait pas chanteur, il aimait les rengaines\
+Surtout celles qui vous tapent comme un grand coup de surin en pleine poitrine\
+Croyant la jouer fine, il ne voulait pas, ne cherchait meme pas\
+A ranger ce putain d'orgueil qui tranchait les liens familiaux\
+Chaque jour un peu plus\
+J'avais pas l'impression d'etre plus cote qu'une caisse a l'argus\
+Donc j'ai du renoncer, trouver mes propres complices\
+Mes partenaires de glisse, desole si je m'immisce
