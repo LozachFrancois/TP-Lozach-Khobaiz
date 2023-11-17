@@ -56,3 +56,11 @@ Chaque jour un peu plus\
 J'avais pas l'impression d'etre plus cote qu'une caisse a l'argus\
 Donc j'ai du renoncer, trouver mes propres complices\
 Mes partenaires de glisse, desole si je m'immisce
+
+Choeur
+
+Mais laisse pas trainer ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramene du vice\
+Laisse pas trainer ton fils\
+Si tu veux pas qu'il glisse
