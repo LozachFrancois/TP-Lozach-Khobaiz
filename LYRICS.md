@@ -79,3 +79,6 @@ Quand pour les yeux des autres, tu joues de mieux en mieux ton rôle\
 Ton rôle de caillera, juste pour ne pas\
 Qu'on te dise, "Voilà tu fais plus partie de la mifa d'en bas"\
 C'est dingue mais c'est comme ça
+Sache qu'ici-bas, plus qu'ailleurs, la survie est un combat\
+À base de coups bas, de coups de tonba\
+D'esquives, des "shta-pow!" de putains de stonba
