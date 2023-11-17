@@ -33,3 +33,16 @@ Si tu ne veux pas qu'il glisse\
 Qu'il te ramene du vice\
 Laisse pas trainer ton fils\
 Si tu veux pas qu'il glisse
+
+Joey Starr
+
+Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"\
+C'est avec ces formules, trop saoulees, enfin faut croire\
+Que mon pere a contribue a me lier avec la rue\
+J'ai eu l'illusion de trouver mieux, j'ai vu\
+Ce qu'un gamin de quatorze ans, avec le decalage de l'age\
+Peut entrevoir,c'était comme un mirage\
+Plus d'interdit, juste avoir les dents assez longues\
+Pour croquer la vie, profiter de tout ce qui tombe
+La rue a su me prendre car elle me faisait confiance\
+Chose qui avec mon pere etait comme de la nuisance
