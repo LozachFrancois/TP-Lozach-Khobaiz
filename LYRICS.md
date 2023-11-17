@@ -64,3 +64,5 @@ Si tu ne veux pas qu'il glisse\
 Qu'il te ramene du vice\
 Laisse pas trainer ton fils\
 Si tu veux pas qu'il glisse
+
+Kool Shen
