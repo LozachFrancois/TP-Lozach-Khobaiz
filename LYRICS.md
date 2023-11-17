@@ -15,3 +15,9 @@ Mais poyr les autres, c'est clair, ca s'ra pas facile\
 Faut pas s'voiler la fae, il suffit pas d'vendre des kils\
 Faut tenir le terrain pour le lendemain\
 S'assurer que les siens aillent bien, eviter les coups de surin
+Afin de garder son beinintact\
+Son equipe compacte, soudee\
+Ecoute de scanner pour garder le contact ou\
+Decider de bouger, eviter les zones rouges, et\
+Surtout jamais prendre de conge\
+C'est ca que tu veux pour ton fils?
