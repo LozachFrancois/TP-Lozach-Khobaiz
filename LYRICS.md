@@ -25,3 +25,11 @@ C'est comme ca que tu veux qu'il grandisse?\
 J'ai pas de conseil a donner, mais si tu veux pas qu'il glisse\
 Regarde-le, quand il parle, ecoute-le!\
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
+
+Choeur
+
+Laisse pas trainer ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramene du vice\
+Laisse pas trainer ton fils\
+Si tu veux pas qu'il glisse
